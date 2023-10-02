@@ -1,4 +1,4 @@
-[![MasterHead](https://cdn.hackernoon.com/images/hzjh3zjk.gif)]
+![MasterHead](https://cdn.hackernoon.com/images/hzjh3zjk.gif)
 
 # 𝐇𝐢 𝐭𝐡𝐞𝐫𝐞!🙋‍♀️
 
