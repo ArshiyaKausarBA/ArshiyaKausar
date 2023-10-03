@@ -20,6 +20,9 @@ I am Arshiya Kausar B A, an aspiring data analyst.
 
   - Flight Delay Analysis USA-2013 (Tableau)
 
+
+*For my Portfolio Guide, click* ***[here](https://github.com/ArshiyaKausarBA/Portfolio-Guide)***
+
  
  ## ⚡️ 𝐂𝐮𝐫𝐫𝐞𝐧𝐭𝐥𝐲 ⚡️
 
